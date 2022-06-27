@@ -10,7 +10,7 @@
 
 邮箱：jmsygzwiki@mailfence.com
 
-QQ:1332626083
+QQ：1332626083
 
 ## 高一级部(准高二）
 
